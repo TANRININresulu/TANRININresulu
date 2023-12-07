@@ -50,8 +50,6 @@
 ### ⛈ Tufan Yolda Şeytanın Krallığını Yıkmak İçin:
 ### 📖 [19x334.com](https://19x334.com) & [TrueClock.org](http://TrueClock.org) & [Oku.FurkanHikmet.com/9#12](https://Oku.FurkanHikmet.com/9#12)
 
-### 🌱 [bit.ly/FusionBattery](https://bit.ly/FusionBattery)
-
 <!--
 **aWordFromGOD/aWordFromGOD** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
