@@ -2,6 +2,10 @@
 
 ### 🕋 🛐 ALLAH'ı, Hamd ile Tesbih Eden & O'nu Överek Yücelten & O'NUN ADI'NI Takdis Eden & Namaz Kılarak O'NA Tapan Resulleriyiz
 
+https://web.archive.org/web/20191226045307/http://www.universalunity.org/
+
+### 📖 [MasjidTucson.org](https://MasjidTucson.org) & [19x334.com](https://19x334.com) & [TrueClock.org](http://TrueClock.org) & [Oku.FurkanHikmet.com/9#12](https://Oku.FurkanHikmet.com/9#12) & [19.org](https://19.org) & [UniversalUnity.org](https://web.archive.org/web/20191226045307/http://www.universalunity.org/) & [Hanif.de](https://web.archive.org/web/20191230123852/http://hanif.de/) & [66619.org](https://web.archive.org/web/20120218154741/http://www.66619.org/index2.htm)
+
 ### 🕋 🛐 ‪Her Vakit Namaz = 1 Kıyam 1 Rüku ve 1 Secde’dir!
 
 ### 🕋 🛐 [Oku.FurkanHikmet.com/8#10](https://Oku.FurkanHikmet.com/8#10) - İbrahim, Rabbi için ayakta durdu, rüku ve secde etti sonra da O’na şöyle dua etti “Ey Rabbim! Beni ve soyumdan gelecekleri namazı devamlı kılanlardan eyle; ey Rabbimiz! Duamı kabul eyle.” 
@@ -47,8 +51,7 @@
 
 ![“EVERY IDOL WORSHIPPER WILL ENTER TO HELL!”](/73-5.jpg)
 
-### ⛈ Tufan Yolda Şeytanın Krallığını Yıkmak İçin:
-### 📖 [19x334.com](https://19x334.com) & [TrueClock.org](http://TrueClock.org) & [Oku.FurkanHikmet.com/9#12](https://Oku.FurkanHikmet.com/9#12)
+### ⛈ Tufan Yolda Şeytanın Krallığını Yıkmak İçin
 
 <!--
 **aWordFromGOD/aWordFromGOD** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
