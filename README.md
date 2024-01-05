@@ -26,11 +26,7 @@
 
 ### Yani baskın olmazsa ordu namazı kısaltmıyor! Ancak Eğer Baskın Olursa, Namazı Olduğu Gibi Bırakıp Düşman kafirlerle TopYekün Savaşılıyor Ve Bu Durumda 4:101 ayetinde belirtildiği gibi mecburen Kısaltılmış Olunuyor Namaz! Ve 4:101 ayetinde bu kısaltmadan ötürü inananlara bir günah olmadığını bildiriyor Rabbimiz Rahman! Ve 4:103 ayetinde namazı kıldıktan sonra ayakta otururken ve yanlarımız üzerinde iken ALLAH’ı anmaya devam etmemiz emrediliyor!
 
-### Rabbimiz Rahman Azim’sin! Yüce’sin!
-### Rabbimiz Rahman Azim’sin! Yüce’sin!
-### Rabbimiz Rahman Azim’sin! Yüce’sin!
-### Rabbimiz Rahman Ulu’sun! Yüce’sin!
-### Rabbimiz Rahman Kutsal’sın! Yüce’sin!
+### Rabbimiz Rahman Azim’sin! Ulu’sun! İSMİ'ni Takdis Ederiz! Yüce’sin!
 
 ### Ve ALLAH İzin Verirse Güvene Erişince Vakitli 1 Emir Olan Namazı Kılmaya Devam Etmemiz Emrediliyor.
 
