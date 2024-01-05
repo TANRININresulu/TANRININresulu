@@ -50,7 +50,7 @@
 
 <br>
 
-![“EVERY IDOL WORSHIPPER WILL ENTER TO HELL!”](/73-5.jpg)
+![“EVERY PARTNER ASSOCIATEEN WILL ENTER TO HELL!”](/73-5.png)
 
 ### ⛈ Tufan Yolda Şeytanın Krallığını Yıkmak İçin
 
