@@ -3,7 +3,7 @@
 ### 🕋 🛐 37:165 Şüphesiz Kesinlikle Biziz O Saf Olanlar!
 ### 🕋 🛐 37:166 Ve Şüphesiz Kesinlikle Biziz O Yüceltenler!
 
-![ALLAH'EEN APOSTLESEE](/ALLAH-EEN_APOSTLESEE.png)
+![ALLAH'een Mesengersee](/ALLAHeen_Mesengersee.png)
 
 ### 📖 [MasjidTucson.org](https://MasjidTucson.org) & [19x334.com](https://19x334.com) & [TrueClock.org](http://TrueClock.org) & [Oku.FurkanHikmet.com/9#12](https://Oku.FurkanHikmet.com/9#12) & [19.org](https://19.org) & [UniversalUnity.org](https://web.archive.org/web/20191226045307/http://www.universalunity.org/) & [Hanif.de](https://web.archive.org/web/20191230123852/http://hanif.de/) & [66619.org](https://web.archive.org/web/20120218154741/http://www.66619.org/) & [FurkanHikmet.com](https://FurkanHikmet.com/) & [Kıyamet.net](https://Kıyamet.net/)
 
