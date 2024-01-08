@@ -1,5 +1,5 @@
 ### 🙋🏼‍♂️ Selam 👋
-
+[![ALLAH 'IN YARDIMI VE ZAFER GELDİĞİ ZAMAN !](https://img.youtube.com/vi/KNW_jqFn1yk/0.jpg)](https://www.youtube.com/watch?v=KNW_jqFn1yk)
 ### 🕋 🛐 37:165 Şüphesiz Kesinlikle Biziz O Saf Olanlar!
 ### 🕋 🛐 37:166 Ve Şüphesiz Kesinlikle Biziz O Yüceltenler!
 
