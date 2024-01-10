@@ -47,17 +47,16 @@ Ant olsun ki Musa'ya Kitap'ı verdik. Ardı sıra resuller gönderdik. Meryem o�
 
 72:28 RAB'lerinin risaletini duyuruyor olduklarını bilsin diye. O, onlarda bulunanı kuşatmış ve her şeyi sayıyla hesaplamıştır.
 
-
+![ALLAH'ın Resulleri](/318_tr.png)
 
 Bilmediğiniz şeyler biliyorum eğer beni izlerseniz sizi Reşad’ın yarım bıraktığı yola iletirim İnşALLAH
 
 
-19x334.com
+[19x334.com](https://19x334.com)
 
-Kıyamet.net ( TrueClock.org )
+[Kıyamet.net](https://Kıyamet.net) ( [TrueClock.org](https://TrueClock.org) ) 17 Ocak 2280 - UTC 15:49:31 - 14 Cemaziyelevvel 1709
 
-Oku.FurkanHikmet.com
-
+[Oku.FurkanHikmet.com](https://Oku.FurkanHikmet.com)
 
 2:53
 Doğru yolu bulasınız diye, Musa'ya Kitap'ı ve Furkan'ı verdik.
