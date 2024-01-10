@@ -10,6 +10,16 @@ AbdurRAHMAN AyYıldız
 
 ![19 yaşındayken 19-10-2010](https://github.com/TANRIninResulu/TANRIninResulu/assets/8404792/caf2ec82-086a-4412-9e48-ea09ff95aa06)
 
+20:14 "Şüphesiz BEN, BENİM: ALLAH. BEN'den başka ilah yoktur. BANA kölelik et ve Beni anmak için namazı gözet." 
+
+![27-12-2014](https://github.com/TANRIninResulu/TANRIninResulu/assets/8404792/6d25faff-e6b7-4773-b1d8-6920b92722d5)
+
+20:15 O saat elbette gelecektir. Herkes yaptığının karşılığını görsün diye Ben nerdeyse onu gizleyeceğim. 
+ 
+20:16 Ona inanmayıp hevesine uyanlar seni ondan saptırmasın, sonra başüstü düşersin.
+
+<hr>
+
 20:14 ayetine rağmen Musa Nebi olmama senelerce ihtimal vermedim yine de çokları beni deli yerine koydu …
 
 ![abdurRAHMAN](https://github.com/TANRIninResulu/TANRIninResulu/assets/8404792/690f8df9-4fad-433e-b093-e52bf5a89ffe)
@@ -64,10 +74,50 @@ Doğru yolu bulasınız diye, Musa'ya Kitap'ı ve Furkan'ı verdik.
 21:48
 Ant olsun ki, Musa ve Harun'a takva sahipleri için bir ışık olan, bir öğüt olan Furkan'ı verdik.
 
+
+20:17 "Şu elindeki nedir, Musa?" 
+ 
+20:18 "O, benim değneğimdir. Ona dayanırım, onunla koyunlarıma yaprak silkelerim ve bana daha başka yararları da dokunmaktadır" dedi. 
+ 
+20:19 "At onu Musa!" dedi. 
+ 
+20:20 Onu atınca, hareketli bir yılana dönüşüverdi. 
+ 
+20:21 Dedi, "Al onu, korkma. Onu ilk durumuna sokacağız." 
+
 [![ALLAH 'IN YARDIMI VE ZAFER GELDİĞİ ZAMAN !](https://github.com/TANRIninResulu/TANRIninResulu/assets/8404792/723a178b-2484-44b4-a840-a086bf2636a5)](https://www.youtube.com/watch?v=KNW_jqFn1yk)
 
 ### 🕋 🛐 37:165 Şüphesiz Kesinlikle Biziz O Saf Olanlar!
 ### 🕋 🛐 37:166 Ve Şüphesiz Kesinlikle Biziz O Yüceltenler!
+
+
+20:22 "Bir başka delil olarak, elini koltuğunun altına koy; lekesiz bembeyaz olarak çıksın." 
+ 
+20:23 "Böylece sana en büyük işaretlerimizden bazılarını gösterelim." 
+ 
+20:24 "Firavuna git, çünkü o azdı." 
+ 
+20:25 "Efendim" dedi, "göğsümü aç." 
+ 
+20:26 "Bana işimi kolaylaştır." 
+ 
+20:27 "Dilimdeki düğümü çöz." 
+ 
+20:28 "Ki sözümü anlasınlar." 
+ 
+20:29 "Ailemden bana bir yardımcı ata." 
+ 
+20:30 "Kardeşim Harun'u…" 
+ 
+20:31 "Beni onunla destekleyip güçlendir." 
+ 
+20:32 "Bu işimde onu bana ortak yap." 
+ 
+20:33 "Ki seni çokça yüceltelim." 
+ 
+20:34 "Seni çokça analım." 
+ 
+20:35 "Sen, elbette bizi Görensin." 
 
 ![ALLAH'een Mesengersee](/318_en.png)
 
