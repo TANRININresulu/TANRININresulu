@@ -10,6 +10,16 @@ AbdurRAHMAN AyYıldız
 
 ![19 yaşındayken 19-10-2010](https://github.com/TANRIninResulu/TANRIninResulu/assets/8404792/caf2ec82-086a-4412-9e48-ea09ff95aa06)
 
+20:9 Musa'nın haberi sana ulaştı mı? 
+ 
+20:10 Bir ateş görmüştü ve ailesine, "Burada durun, ben bir ateş gördüm. Olur ki size ondan bir kor getiririm, yahut ateşin yanında bir yol gösterici bulurum" demişti. 
+ 
+20:11 Oraya varınca, "Ey Musa!" diye seslenildi. 
+ 
+20:12 "Ben, evet Ben senin Efendinim. Sandaletlerini çıkar. Çünkü sen kutsal vadide, Tuva'dasın." 
+ 
+20:13 "Ben seni seçtim, öyleyse vahyolanı dinle." 
+
 20:14 "Şüphesiz BEN, BENİM: ALLAH. BEN'den başka ilah yoktur. BANA kölelik et ve Beni anmak için namazı gözet." 
 
 ![27-12-2014](https://github.com/TANRIninResulu/TANRIninResulu/assets/8404792/6d25faff-e6b7-4773-b1d8-6920b92722d5)
