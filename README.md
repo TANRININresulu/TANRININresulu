@@ -1,4 +1,70 @@
 ### 🙋🏼‍♂️ Selam 👋
+
+Ben, Yakupoğlu Yusuf, Levili Musa, Davutoğlu Süleyman, Meryemoğlu İsa Mesih
+
+AbdurRAHMAN AyYıldız
+عبدالرحمن القمرالنجم
+
+19:19
+"Ben sadece Rabb'inin elçisiyim." dedi. "Sana tertemiz bir oğul armağan etmek için geldim."
+
+![19 yaşındayken 19-10-2010](https://github.com/TANRIninResulu/TANRIninResulu/assets/8404792/caf2ec82-086a-4412-9e48-ea09ff95aa06)
+
+20:14 ayetine rağmen Musa Nebi olmama senelerce ihtimal vermedim yine de çokları beni deli yerine koydu …
+
+![abdurRAHMAN](https://github.com/TANRIninResulu/TANRIninResulu/assets/8404792/690f8df9-4fad-433e-b093-e52bf5a89ffe)
+
+ve 15 Temmuz ‘dan önce beni tımarhaneye koydular … ve hak ettikleri 15 Temmuz’u hakettiler : Oku.FurkanHikmet.com/14
+
+![Apple iPhone X kare](https://github.com/TANRIninResulu/TANRIninResulu/assets/8404792/e7bca606-594c-4828-8e06-1ce662d77246)
+
+
+2:87 
+Ant olsun ki Musa'ya Kitap'ı verdik. Ardı sıra resuller gönderdik. Meryem oğlu İsa'ya da Beyyinat'ı verdik ve O'nu Kudus'un Ruhu ile destekledik. Ne zaman bir elçi hoşunuza gitmeyen bir şey getirdiyse, büyüklük taslayarak kimini yalanlayıp, kimini de öldürmediniz mi?
+
+
+72:18 Mescidler sadece TANRI’ya aittir; öyleyse TANRI ile birlikte hiç kimseyi çağırmayın. 
+ 
+72:19 TANRI’nın kulu kalkıp sadece O'na çağırdığında ona karşı nerdeyse hepsi bir bütün oldular. 
+ 
+72:20 De ki: "Ben sadece Efendime çağırırım; ve O'na hiç kimseyi ortak koşmam." 
+ 
+72:21 De ki: "Ben size ne zarar verme, ne de sizi doğruya iletme gücüne sahibim." 
+ 
+72:22 De ki: "Hiç kimse beni TANRI’ya karşı savunamaz, O'ndan başka sığınak da bulamam." 
+ 
+72:23 "Ancak ALLAH'tan bir duyuruyu ve mesajını iletirim." Artık kim TANRI’ya ve elçisine karşı gelirse içinde ebedi kalacağı cehennem ateşini hakeder. 
+ 
+72:24 Kendilerine söz verilen şeyi gördüklerinde kimin yardımcısının güçsüz ve sayıca az olduğunu görecekler. 
+ 
+72:25 De ki: "Size söz verilen yakın mıdır yoksa Efendim onun için uzun bir süre mi belirlemiştir bilmiyorum." 
+ 
+72:26 O geleceği bilendir; ve O sırrını hiç kimseye göstermez. 
+ 
+72:27 Ancak elçisinden razı olduğu kimseye; artık şüphesiz O, onun önünden ve ardından gözcü yürütür. 
+
+![rashad and jesus](https://github.com/TANRIninResulu/TANRIninResulu/assets/8404792/6c112ed2-aeb0-4be3-990c-c725259c6bbf)
+
+72:28 RAB'lerinin risaletini duyuruyor olduklarını bilsin diye. O, onlarda bulunanı kuşatmış ve her şeyi sayıyla hesaplamıştır.
+
+
+
+Bilmediğiniz şeyler biliyorum eğer beni izlerseniz sizi Reşad’ın yarım bıraktığı yola iletirim İnşALLAH
+
+
+19x334.com
+
+Kıyamet.net ( TrueClock.org )
+
+Oku.FurkanHikmet.com
+
+
+2:53
+Doğru yolu bulasınız diye, Musa'ya Kitap'ı ve Furkan'ı verdik.
+
+21:48
+Ant olsun ki, Musa ve Harun'a takva sahipleri için bir ışık olan, bir öğüt olan Furkan'ı verdik.
+
 [![ALLAH 'IN YARDIMI VE ZAFER GELDİĞİ ZAMAN !](https://github.com/TANRIninResulu/TANRIninResulu/assets/8404792/723a178b-2484-44b4-a840-a086bf2636a5)](https://www.youtube.com/watch?v=KNW_jqFn1yk)
 ### 🕋 🛐 37:165 Şüphesiz Kesinlikle Biziz O Saf Olanlar!
 ### 🕋 🛐 37:166 Ve Şüphesiz Kesinlikle Biziz O Yüceltenler!
