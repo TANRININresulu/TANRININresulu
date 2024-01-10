@@ -10,7 +10,7 @@ AbdurRAHMAN AyYıldız
 
 ![19 yaşındayken 19-10-2010](https://github.com/TANRIninResulu/TANRIninResulu/assets/8404792/caf2ec82-086a-4412-9e48-ea09ff95aa06)
 
-20:9 Musa'nın haberi sana ulaştı mı? 
+20:09 Musa'nın haberi sana ulaştı mı? 
  
 20:10 Bir ateş görmüştü ve ailesine, "Burada durun, ben bir ateş gördüm. Olur ki size ondan bir kor getiririm, yahut ateşin yanında bir yol gösterici bulurum" demişti. 
  
