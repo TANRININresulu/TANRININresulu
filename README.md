@@ -14,7 +14,7 @@ AbdurRAHMAN AyYıldız
 
 ![abdurRAHMAN](https://github.com/TANRIninResulu/TANRIninResulu/assets/8404792/690f8df9-4fad-433e-b093-e52bf5a89ffe)
 
-ve 15 Temmuz ‘dan önce beni tımarhaneye koydular … ve hak ettikleri 15 Temmuz’u hakettiler : Oku.FurkanHikmet.com/14
+ve 15 Temmuz ‘dan önce beni tımarhaneye koydular … ve hak ettikleri 15 Temmuz’u hakettiler : [Oku.FurkanHikmet.com/14](https://Oku.FurkanHikmet.com/14)
 
 ![Apple iPhone X kare](https://github.com/TANRIninResulu/TANRIninResulu/assets/8404792/e7bca606-594c-4828-8e06-1ce662d77246)
 
@@ -65,11 +65,11 @@ Doğru yolu bulasınız diye, Musa'ya Kitap'ı ve Furkan'ı verdik.
 Ant olsun ki, Musa ve Harun'a takva sahipleri için bir ışık olan, bir öğüt olan Furkan'ı verdik.
 
 [![ALLAH 'IN YARDIMI VE ZAFER GELDİĞİ ZAMAN !](https://github.com/TANRIninResulu/TANRIninResulu/assets/8404792/723a178b-2484-44b4-a840-a086bf2636a5)](https://www.youtube.com/watch?v=KNW_jqFn1yk)
+
 ### 🕋 🛐 37:165 Şüphesiz Kesinlikle Biziz O Saf Olanlar!
 ### 🕋 🛐 37:166 Ve Şüphesiz Kesinlikle Biziz O Yüceltenler!
 
-
-![ALLAH'een Mesengersee](/ALLAHeen_Mesengersee.png)
+![ALLAH'een Mesengersee](/318_en.png)
 
 ### 📖 [MasjidTucson.org](https://MasjidTucson.org) & [19x334.com](https://19x334.com) & [TrueClock.org](http://TrueClock.org) & [Oku.FurkanHikmet.com/9#12](https://Oku.FurkanHikmet.com/9#12) & [19.org](https://19.org) & [UniversalUnity.org](https://web.archive.org/web/20191226045307/http://www.universalunity.org/) & [Hanif.de](https://web.archive.org/web/20191230123852/http://hanif.de/) & [66619.org](https://web.archive.org/web/20120218154741/http://www.66619.org/) & [FurkanHikmet.com](https://FurkanHikmet.com/) & [Kıyamet.net](https://Kıyamet.net/)
 
