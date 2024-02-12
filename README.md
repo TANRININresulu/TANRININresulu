@@ -69,8 +69,6 @@ Ant olsun ki Musa'ya Kitap'ı verdik. Ardı sıra resuller gönderdik. Meryem o�
 
 ![ALLAH'ın Resulleri](/318_tr.png)
 
-Bilmediğiniz şeyler biliyorum eğer beni izlerseniz sizi Reşad’ın yarım bıraktığı yola iletirim İnşALLAH
-
 40:38 İman etmiş olan kimse: “Ey halkım! Bana uyun ki sizi reşadın yoluna ileteyim.”
 
 [19x334.com](https://19x334.com)
