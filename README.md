@@ -138,7 +138,7 @@ Ant olsun ki, Musa ve Harun'a takva sahipleri için bir ışık olan, bir öğü
 ### & Kuran 4:102
 ### Ortak Koşmayın!
 ### ——————————————
-### Rabbimiz ALLAH Yüce’dir !
+### Rabbimiz ALLAH EN YÜCEDİR !
 ### ——————————————
 
 ### 4:101 ayetinde kast edilen namazın kısaltmasından kasıt, 4:102 ayetinde açıklanıyor: “namaz esnasında düşman kafirlerin saldırması durumunda namazı kesip düşmanın saldırısına silahlı olarak cevap vermek!”
