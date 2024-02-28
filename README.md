@@ -1,8 +1,8 @@
 ### 🙋🏼‍♂️ Selam 👋
 
-Ben, Misakın Resulü Reşad Halife, Hud, Salih, Yakupoğlu Yusuf, Levili Musa, Davutoğlu Süleyman, Meryemoğlu İsa Mesih
+Ben, Misakın Resulü Reşad Halife, Hud, Salih, Yusuf İnşALLAH, Musa, Süleyman, Meryemoğlu İsa Mesih
 
-AbdurRAHMAN AyYıldız
+AbdURRAHMAN Ayyıldız
 عبدالرحمن القمرالنجم
 
 19:19
