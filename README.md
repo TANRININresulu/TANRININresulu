@@ -67,7 +67,7 @@ Ant olsun ki Musa'ya Kitap'ı verdik. Ardı sıra resuller gönderdik. Meryem o�
 
 72:28 RAB'lerinin risaletini duyuruyor olduklarını bilsin diye. O, onlarda bulunanı kuşatmış ve her şeyi sayıyla hesaplamıştır.
 
-![ALLAH'ın Resulleri](/318_tr.png)
+![ALLAH'ın Resulleri](/318_tr_19_face.png)
 
 40:38 İman etmiş olan kimse: “Ey halkım! Bana uyun ki sizi reşadın yoluna ileteyim.”
 
@@ -128,7 +128,7 @@ Ant olsun ki, Musa ve Harun'a takva sahipleri için bir ışık olan, bir öğü
  
 20:35 "Sen, elbette bizi Görensin." 
 
-![ALLAH'een Mesengersee](/318_en.png)
+![ALLAH'een Mesengersee](/318_en_19_face.png)
 
 ### 📖 [MasjidTucson.org](https://MasjidTucson.org) & [19x334.com](https://19x334.com) & [TrueClock.org](http://TrueClock.org) & [Oku.FurkanHikmet.com/9#12](https://Oku.FurkanHikmet.com/9#12) & [19.org](https://19.org) & [UniversalUnity.org](https://web.archive.org/web/20191226045307/http://www.universalunity.org/) & [Hanif.de](https://web.archive.org/web/20191230123852/http://hanif.de/) & [66619.org](https://web.archive.org/web/20120218154741/http://www.66619.org/) & [FurkanHikmet.com](https://FurkanHikmet.com/) & [Kıyamet.net](https://Kıyamet.net/)
 
