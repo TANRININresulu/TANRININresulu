@@ -1,7 +1,10 @@
 Subhan EFENDİMİZ RAHMAN, bu türden şapkaların -lenin şapkası- nın giyilmesini haram etti
 
+![ALLAH'een Mesengersee](/haram_giymesi_lenin_şapkasının.jpg)
+
 üçlemeyi uyduran sonraki yaşamında da 9:128-129 ’u uyduran daha sonra da ateizmi ve dinsizliği insanlara dayatan zalim zorba huzeyme lenin engin tektaş ın giydiği bu solcu inkarcı ateist müşrik lenin inkarcı şapkasının giyilmesini haram etti ALLAH!
 
+![ALLAH'een Mesengersee](/lenin_şapkasını_giymeyi_haram_etti_Subhan_ALLAH!_LA_İLAHE_İLLA_ALLAH!.jpg)
 
 Gerçeği Gizleyenler
 
