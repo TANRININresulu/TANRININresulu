@@ -1,10 +1,14 @@
 Subhan EFENDİMİZ RAHMAN, bu türden şapkaların -lenin şapkası- nın giyilmesini haram etti
 
-![ALLAH'een Mesengersee](/haram_giymesi_lenin_şapkasının.jpg)
 
-üçlemeyi uyduran sonraki yaşamında da 9:128-129 ’u uyduran daha sonra da ateizmi ve dinsizliği insanlara dayatan zalim zorba huzeyme lenin engin tektaş ın giydiği bu solcu inkarcı ateist müşrik lenin inkarcı şapkasının giyilmesini haram etti ALLAH!
+<br>![ALLAH'een Mesengersee](https://raw.githubusercontent.com/TANRIninResulu/TANRIninResulu/main/haram_giymesi_lenin_şapkasının.jpg)
 
-![ALLAH'een Mesengersee](/lenin_şapkasını_giymeyi_haram_etti_Subhan_ALLAH!_LA_İLAHE_İLLA_ALLAH!.jpg)
+
+<br>üçlemeyi uyduran sonraki yaşamında da 9:128-129 ’u uyduran daha sonra da ateizmi ve dinsizliği insanlara dayatan zalim zorba huzeyme lenin engin tektaş ın giydiği bu solcu inkarcı ateist müşrik lenin inkarcı şapkasının giyilmesini haram etti ALLAH!
+
+
+<br>![ALLAH'een Mesengersee](https://raw.githubusercontent.com/TANRIninResulu/TANRIninResulu/main/lenin_şapkasını_giymeyi_haram_etti_Subhan_ALLAH!_LA_İLAHE_İLLA_ALLAH!.jpg)
+
 
 Gerçeği Gizleyenler
 
@@ -23,7 +27,7 @@ Gerçeği Gizleyenler
 109:6 “Sizin dininiz size, benim dinim bana.”
 
 
-4:26 ALLAH, size açıklamak; sizi, sizden öncekilerin yasalarına iletmek ve tevbenizi kabul etmek ister. ALLAH, Her Şeyi Bilen'dir, En İyi Hüküm Veren'dir.
+<br>4:26 ALLAH, size açıklamak; sizi, sizden öncekilerin yasalarına iletmek ve tevbenizi kabul etmek ister. ALLAH, Her Şeyi Bilen'dir, En İyi Hüküm Veren'dir.
 
 42:6 Onlar, O'nun yanı sıra veliler edindiler. ALLAH, onları görüp gözetlemektedir. Sen onlara vekil değilsin.
 
