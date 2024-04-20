@@ -2,19 +2,19 @@ Subhan EFENDİMİZ RAHMAN, bu türden şapkaların -lenin şapkası- nın giyilm
 
 üçlemeyi uyduran sonraki yaşamında da 9:128-129 ’u uyduran daha sonra da ateizmi ve dinsizliği insanlara dayatan zalim zorba huzeyme lenin engin tektaş ın giydiği bu solcu inkarcı ateist müşrik lenin inkarcı şapkasının giyilmesini haram etti ALLAH!
 
+
 Gerçeği Gizleyenler
 
- 
-109:0 RAHMAN ve Rahim olan ALLAH’ın Adıyla, 
- 
-109:1 De ki: “Ey gerçeği gizleyenler.” 
- 
-109:2 “Ben, sizin hizmet ettiklerinize hizmet etmem.” 
- 
-109:3 “Siz de benim hizmet ettiğime hizmet etmezsiniz.” 
- 
-109:4 “Ben asla sizin hizmet ettiğinize hizmet edecek değilim.” 
- 
+109:0 RAHMAN ve Rahim olan ALLAH’ın Adıyla,
+
+109:1 De ki: “Ey gerçeği gizleyenler.”
+
+109:2 “Ben, sizin hizmet ettiklerinize hizmet etmem.”
+
+109:3 “Siz de benim hizmet ettiğime hizmet etmezsiniz.”
+
+109:4 “Ben asla sizin hizmet ettiğinize hizmet edecek değilim.”
+
 109:5 “Siz de benim hizmet ettiğime hizmet edecek değilsiniz.”
 
 109:6 “Sizin dininiz size, benim dinim bana.”
