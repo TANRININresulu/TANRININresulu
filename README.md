@@ -4,7 +4,7 @@ Subhan EFENDİMİZ RAHMAN, bu türden şapkaların -lenin şapkası- nın giyilm
 <br>![ALLAH'een Mesengersee](https://raw.githubusercontent.com/TANRIninResulu/TANRIninResulu/main/haram_giymesi_lenin_şapkasının.jpg)
 
 
-<br>üçlemeyi uyduran sonraki yaşamında da 9:128-129 ’u uyduran daha sonra da ateizmi ve dinsizliği insanlara dayatan zalim zorba huzeyme lenin engin tektaş ın giydiği bu solcu inkarcı ateist müşrik lenin inkarcı şapkasının giyilmesini haram etti ALLAH!
+<br>üçlemeyi uyduran sonraki yaşamında da 9:128-129 ’u uyduran daha sonra da ateizmi ve dinsizliği insanlara dayatan şeytan ajanı ikiyüzlü hain müşrik inkarcı zalim zorba işkariyot huzeyme lenin in giydiği bu solcu inkarcı ateist müşrik lenin inkarcı şapkasının giyilmesini haram etti Subhan Rabbimiz ALLAH!
 
 
 <br>![ALLAH'een Mesengersee](https://raw.githubusercontent.com/TANRIninResulu/TANRIninResulu/main/lenin_şapkasını_giymeyi_haram_etti_Subhan_ALLAH!_LA_İLAHE_İLLA_ALLAH!.jpg)
