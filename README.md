@@ -15,21 +15,21 @@ Subhan EFENDİMİZ RAHMAN, bu türden şapkaların -lenin şapkası- nın giyilm
 111:5 Boynunda ip dikenden!](https://raw.githubusercontent.com/TANRIninResulu/TANRIninResulu/main/lenin_şapkasını_giymeyi_haram_etti_Subhan_ALLAH!_LA_İLAHE_İLLA_ALLAH!.jpg)
 
 
-Gerçeği Gizleyenler
-
-109:0 RAHMAN ve Rahim olan ALLAH’ın Adıyla,
-
-109:1 De ki: “Ey gerçeği gizleyenler.”
-
-109:2 “Ben, sizin hizmet ettiklerinize hizmet etmem.”
-
-109:3 “Siz de benim hizmet ettiğime hizmet etmezsiniz.”
-
-109:4 “Ben asla sizin hizmet ettiğinize hizmet edecek değilim.”
-
-109:5 “Siz de benim hizmet ettiğime hizmet edecek değilsiniz.”
-
-109:6 “Sizin dininiz size, benim dinim bana.”
+Sure 109 - KÜFREDENLER
+ 
+RAHMAN ve RAHİM Olan ALLAH'ın Adıyla, 
+ 
+109:1 De : " EY SİZ KAFİRLER ! " 
+ 
+109:2 " ETMEM ! KULLUK ! , şeye kulluk ettiğiniz ! " 
+ 
+109:3 " VE ETMEZSİNİZ ! SİZ ! KULLUK ! , ŞEYE KULLUK ETTİĞİM ! ” 
+ 
+109:4 " VE DEĞİLİM ! BEN ! EDEN ! KULLUK ! , şeye kulluk ettiğiniz ! ” 
+ 
+109:5 " VE DEĞİLSİNİZ ! SİZ ! EDEN ! KULLUK ! , ŞEYE KULLUK ETTİĞİM ! ” 
+ 
+109:6 " KESİNLİKLE SİZİNDİR ! dininiz ! , VE KESİNLİK (19) BENİM DİNİM ! ”
 
 
 <br>4:26 ALLAH, size açıklamak; sizi, sizden öncekilerin yasalarına iletmek ve tevbenizi kabul etmek ister. ALLAH, Her Şeyi Bilen'dir, En İyi Hüküm Veren'dir.
