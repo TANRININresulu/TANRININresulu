@@ -204,13 +204,13 @@ Ant olsun ki, Musa ve Harun'a takva sahipleri için bir ışık olan, bir öğü
 
 <br>
 
-![“ORTAK KOŞAN HERKES CEHENNEME GİRECEK!”](/73-5-ayeti.png)
+![“ORTAK KOŞAN HERKES CEHENNEME GİRECEK!”](/73-5-ayetinde-vaat-edilen-söz.png)
 
 ### 🔥 “EVERY PARTNER ASSOCIATEEN WILL ENTER TO HELL!”
 
 <br>
 
-![“EVERY PARTNER ASSOCIATEEN WILL ENTER TO HELL!”](/73-5.png)
+![“EVERY PARTNER ASSOCIATEEN WILL ENTER TO HELL!”](/promisen-word-in-verse-73-5.png)
 
 ### ⛈ Tufan Yolda Şeytanın Krallığını Yıkmak İçin
 
