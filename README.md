@@ -106,7 +106,7 @@ Ant olsun ki Musa'ya Kitap'ı verdik. Ardı sıra resuller gönderdik. Meryem o�
 
 72:28 RAB'lerinin risaletini duyuruyor olduklarını bilsin diye. O, onlarda bulunanı kuşatmış ve her şeyi sayıyla hesaplamıştır.
 
-![ALLAH'ın Resulleri](/318_tr_19_face.png)
+![ALLAH'ın Resulleri](/1147227.png)
 
 40:38 İman etmiş olan kimse: “Ey halkım! Bana uyun ki sizi reşadın yoluna ileteyim.”
 
