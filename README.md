@@ -50,7 +50,7 @@ Sure 112 - İHLAS
 
 ### 🙋🏼‍♂️ Selam 👋
 
-Ben, Misakın Resulü Hud Salih Eyyub İshak Yusuf Musa Süleyman Zü'l Kifl Meryemoğlu İsa Mesih AbdULLAH AyYıldız Feyiz Reşad Halife AbdURRAHMAN Ayyıldız
+Ben, Hud Salih Eyyub İshak Yusuf Musa Süleyman Zü'l Kifl Meryemoğlu İsa Mesih Reşad Halife AbdURRAHMAN Ayyıldız
 عبدالرحمن القمرالنجم
 
 19:19
