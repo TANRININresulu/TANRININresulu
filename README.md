@@ -50,9 +50,7 @@ Sure 112 - İHLAS
 
 ### 🙋🏼‍♂️ Selam 👋
 
-Ben, Misakın Resulü Hud, Salih, Eyüp, Yusuf İnşALLAH, Musa, Süleyman, Meryemoğlu İsa Mesih, Reşad Halife,
-
-AbdURRAHMAN Ayyıldız
+Ben, Misakın Resulü Hud Salih Eyyub İshak Yusuf Musa Süleyman Zü'l Kifl Meryemoğlu İsa Mesih AbdULLAH AyYıldız Feyiz Reşad Halife AbdURRAHMAN Ayyıldız
 عبدالرحمن القمرالنجم
 
 19:19
@@ -133,7 +131,6 @@ Doğru yolu bulasınız diye, Musa'ya Kitap'ı ve Furkan'ı verdik.
 21:48
 Ant olsun ki, Musa ve Harun'a takva sahipleri için bir ışık olan, bir öğüt olan Furkan'ı verdik.
 
-
 20:17 "Şu elindeki nedir, Musa?" 
  
 20:18 "O, benim değneğimdir. Ona dayanırım, onunla koyunlarıma yaprak silkelerim ve bana daha başka yararları da dokunmaktadır" dedi. 
@@ -162,21 +159,7 @@ Ant olsun ki, Musa ve Harun'a takva sahipleri için bir ışık olan, bir öğü
  
 20:27 "Dilimdeki düğümü çöz." 
  
-20:28 "Ki sözümü anlasınlar." 
- 
-20:29 "Ailemden bana bir yardımcı ata." 
- 
-20:30 "Kardeşim Harun'u…" 
- 
-20:31 "Beni onunla destekleyip güçlendir." 
- 
-20:32 "Bu işimde onu bana ortak yap." 
- 
-20:33 "Ki seni çokça yüceltelim." 
- 
-20:34 "Seni çokça analım." 
- 
-20:35 "Sen, elbette bizi Görensin." 
+20:28 "Ki sözümü anlasınlar."
 
 ![ALLAH'een Mesengersee](/1147227.png)
 
