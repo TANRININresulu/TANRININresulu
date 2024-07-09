@@ -34,8 +34,19 @@ RAHMAN ve RAHİM Olan ALLAH'ın Adıyla,
 
 <br>4:26 ALLAH, size açıklamak; sizi, sizden öncekilerin yasalarına iletmek ve tevbenizi kabul etmek ister. ALLAH, Her Şeyi Bilen'dir, En İyi Hüküm Veren'dir.
 
-42:6 Onlar, O'nun yanı sıra veliler edindiler. ALLAH, onları görüp gözetlemektedir. Sen onlara vekil değilsin.
+Sure 112 - İHLAS
+ 
+112:0- İSMİYLE ALLAH’IN; RAHMAN, RAHİM;
+ 
+112:1- DE Kİ: “TEK ALLAH’TIR O!
+ 
+112:2- MUTLAK ALLAH!
+ 
+112:3- DOĞURULMADI! VE DOĞURMADI!
+ 
+112:4- VE HİÇ KİMSE DENGİ, O'NA OLMADI!”
 
+42:6 Onlar, O'nun yanı sıra veliler edindiler. ALLAH, onları görüp gözetlemektedir. Sen onlara vekil değilsin.
 
 ### 🙋🏼‍♂️ Selam 👋
 
