@@ -80,8 +80,6 @@ Ben, Hud Salih Eyyub İshak Yusuf Musa Süleyman Zü'l Kifl Meryemoğlu İsa Mes
 
 20:14 ayetine rağmen Musa Nebi olmama senelerce ihtimal vermedim yine de çokları beni deli yerine koydu …
 
-![abdurRAHMAN](https://github.com/TANRIninResulu/TANRIninResulu/assets/8404792/690f8df9-4fad-433e-b093-e52bf5a89ffe)
-
 ve 15 Temmuz ‘dan önce beni tımarhaneye koydular … ve hak ettikleri 15 Temmuz’u hakettiler : [Oku.FurkanHikmet.com/14](https://Oku.FurkanHikmet.com/14)
 
 ![Apple iPhone X kare](https://github.com/TANRIninResulu/TANRIninResulu/assets/8404792/e7bca606-594c-4828-8e06-1ce662d77246)
