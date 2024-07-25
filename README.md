@@ -1,4 +1,4 @@
-Subhan EFENDİMİZ RAHMAN, bu türden şapkaların -lenin şapkası- nın giyilmesini haram etti
+Subhan EFENDİMİZ EL KUDDÜS, bu türden şapkaların -lenin şapkası- nın giyilmesini haram etti
 
 
 <br>![üçlemeyi uyduran sonraki yaşamında da 9:128-129 ’u uyduran daha sonra da ateizmi ve dinsizliği insanlara dayatan şeytan ajanı ikiyüzlü hain müşrik inkarcı zalim zorba işkariyot huzeyme lenin in giydiği bu solcu inkarcı ateist müşrik lenin inkarcı şapkasının giyilmesini haram etti Subhan Rabbimiz ALLAH!](https://raw.githubusercontent.com/TANRIninResulu/TANRIninResulu/main/haram_giymesi_lenin_şapkasının.jpg)
@@ -80,7 +80,7 @@ Ben, Hud Salih Eyyub İshak Yusuf Musa Süleyman Zü'l Kifl Meryemoğlu İsa Mes
 
 20:14 ayetine rağmen Musa Nebi olmama senelerce ihtimal vermedim yine de çokları beni deli yerine koydu …
 
-ve 15 Temmuz ‘dan önce beni tımarhaneye koydular … ve hak ettikleri 15 Temmuz’u hakettiler : [Oku.FurkanHikmet.com/14](https://Oku.FurkanHikmet.com/14)
+ve 15 Temmuz ‘dan önce beni tımarhaneye koydular … ve hak ettikleri 15 Temmuz’u hakettiler : [FurkanHikmet.com/14](https://FurkanHikmet.com/14)
 
 ![Apple iPhone X kare](https://github.com/TANRIninResulu/TANRIninResulu/assets/8404792/e7bca606-594c-4828-8e06-1ce662d77246)
 
@@ -113,15 +113,13 @@ Ant olsun ki Musa'ya Kitap'ı verdik. Ardı sıra resuller gönderdik. Meryem o�
 
 72:28 RAB'lerinin risaletini duyuruyor olduklarını bilsin diye. O, onlarda bulunanı kuşatmış ve her şeyi sayıyla hesaplamıştır.
 
-![ALLAH'ın Resulleri](/1147227.png)
-
 40:38 İman etmiş olan kimse: “Ey halkım! Bana uyun ki sizi reşadın yoluna ileteyim.”
 
 [19x334.com](https://19x334.com)
 
 [Kıyamet.net](https://Kıyamet.net) ( [TrueClock.org](https://TrueClock.org) ) 17 Ocak 2280 - UTC 15:49:31 - 14 Cemaziyelevvel 1709
 
-[Oku.FurkanHikmet.com](https://Oku.FurkanHikmet.com)
+[FurkanHikmet.com](https://FurkanHikmet.com)
 
 2:53
 Doğru yolu bulasınız diye, Musa'ya Kitap'ı ve Furkan'ı verdik.
@@ -141,10 +139,6 @@ Ant olsun ki, Musa ve Harun'a takva sahipleri için bir ışık olan, bir öğü
 
 [![ALLAH 'IN YARDIMI VE ZAFER GELDİĞİ ZAMAN !](https://github.com/TANRIninResulu/TANRIninResulu/assets/8404792/723a178b-2484-44b4-a840-a086bf2636a5)](https://youtu.be/0c9Z5YAGZn4)
 
-### 🕋 🛐 37:165 Şüphesiz Kesinlikle Biziz O Saf Olanlar!
-### 🕋 🛐 37:166 Ve Şüphesiz Kesinlikle Biziz O Yüceltenler!
-
-
 20:22 "Bir başka delil olarak, elini koltuğunun altına koy; lekesiz bembeyaz olarak çıksın." 
  
 20:23 "Böylece sana en büyük işaretlerimizden bazılarını gösterelim." 
@@ -159,13 +153,11 @@ Ant olsun ki, Musa ve Harun'a takva sahipleri için bir ışık olan, bir öğü
  
 20:28 "Ki sözümü anlasınlar."
 
-![ALLAH'een Mesengersee](/1147227.png)
-
-### 📖 [MasjidTucson.org](https://MasjidTucson.org) & [19x334.com](https://19x334.com) & [TrueClock.org](http://TrueClock.org) & [Oku.FurkanHikmet.com/9#12](https://Oku.FurkanHikmet.com/9#12) & [19.org](https://19.org) & [UniversalUnity.org](https://web.archive.org/web/20191226045307/http://www.universalunity.org/) & [Hanif.de](https://web.archive.org/web/20191230123852/http://hanif.de/) & [66619.org](https://web.archive.org/web/20120218154741/http://www.66619.org/) & [FurkanHikmet.com](https://FurkanHikmet.com/) & [Kıyamet.net](https://Kıyamet.net/)
+### 📖 [MasjidTucson.org](https://MasjidTucson.org) & [19x334.com](https://19x334.com) & [TrueClock.org](http://TrueClock.org) & [FurkanHikmet.com/9#12](https://FurkanHikmet.com/9#12) & [19.org](https://19.org) & [UniversalUnity.org](https://web.archive.org/web/20191226045307/http://www.universalunity.org/) & [Hanif.de](https://web.archive.org/web/20191230123852/http://hanif.de/) & [66619.org](https://web.archive.org/web/20120218154741/http://www.66619.org/) & [FurkanHikmet.com](https://FurkanHikmet.com/) & [Kıyamet.net](https://Kıyamet.net/)
 
 ### 🕋 🛐 ‪Her Vakit Namaz = 1 Kıyam 1 Rüku ve 1 Secde’dir!
 
-### 🕋 🛐 [Oku.FurkanHikmet.com/8#10](https://Oku.FurkanHikmet.com/8#10) - İbrahim, Rabbi için ayakta durdu, rüku ve secde etti sonra da O’na şöyle dua etti “Ey Rabbim! Beni ve soyumdan gelecekleri namazı devamlı kılanlardan eyle; ey Rabbimiz! Duamı kabul eyle.” 
+### 🕋 🛐 [FurkanHikmet.com/8#10](https://FurkanHikmet.com/8#10) - İbrahim, Rabbi için ayakta durdu, rüku ve secde etti sonra da O’na şöyle dua etti “Ey Rabbim! Beni ve soyumdan gelecekleri namazı devamlı kılanlardan eyle; ey Rabbimiz! Duamı kabul eyle.” 
 ### & Kuran 4:102
 ### Ortak Koşmayın!
 ### ——————————————
@@ -176,13 +168,13 @@ Ant olsun ki, Musa ve Harun'a takva sahipleri için bir ışık olan, bir öğü
 
 ### 4:102 ayetinde, Namaz esnasında hastalık bitkinliğinden ya da yağmur nedeniyle toprağın çamuruna batmamak için silahın ağırlığına namaz esnasında katlanamayanlara dahi silahlarını namaz esnasında bırakmalarına izin verdiğini ancak saldırıya hazır olmalarını (dolayısıyla silahlarının yanlarında yerde yakında namaz kıldıkları yerin ön kenarında vb. olması) detayını dahi bildiriyor Rabbimiz Rahman!
 
-### [Furkan 8:10](https://Oku.FurkanHikmet.com/8#10) ayetinde olduğu gibi Kuran 4:102 ayetinde de namazda her vaktin 1 kıyam 1 rüku 1 secde ‘den oluştuğu bildiriliyor. Ordu’nun namaz esnasında 2’ye bölünme nedeni namaz esnasında düşman kafirlerin baskınına cevap verebilmek! 
+### [Furkan 8:10](https://FurkanHikmet.com/8#10) ayetinde olduğu gibi Kuran 4:102 ayetinde de namazda her vaktin 1 kıyam 1 rüku 1 secde ‘den oluştuğu bildiriliyor. Ordu’nun namaz esnasında 2’ye bölünme nedeni namaz esnasında düşman kafirlerin baskınına cevap verebilmek! 
 
 ### Ancak eğer namaz esnasında düşman kafirler saldırmazlarsa ve kafir düşmanın fitnesinden o yer ve zamanda çekinilmiyorsa namazı olması gerektiği şekilde kısaltmadan normal uzunluğunda 1 kıyam 1 rüku ve 1 secde olarak kılmış oluyor ordunun ilk yarısı. Namazı kılmayan ve namaz kılınması esnasında gözcülük yapan ordunun 2. yarısı, ilk yarısıyla yer değiştirip, ordunun 2. yarısı da namazı kılınca, Sadece Nebi 2 kere namaz kılmış oluyor. Diğer tüm askerler tam uzunlukta kısaltmadan namazlarını kılmış oluyorlar bir baskın olmaması halinde!
 
 ### Yani baskın olmazsa ordu namazı kısaltmıyor! Ancak Eğer Baskın Olursa, Namazı Olduğu Gibi Bırakıp Düşman kafirlerle TopYekün Savaşılıyor Ve Bu Durumda 4:101 ayetinde belirtildiği gibi mecburen Kısaltılmış Olunuyor Namaz! Ve 4:101 ayetinde bu kısaltmadan ötürü inananlara bir günah olmadığını bildiriyor Rabbimiz Rahman! Ve 4:103 ayetinde namazı kıldıktan sonra ayakta otururken ve yanlarımız üzerinde iken ALLAH’ı anmaya devam etmemiz emrediliyor!
 
-### سبحن الله ربي ذو الفضل العظيم
+###   سبحن الله ربي القدوس
 
 ### Ve ALLAH İzin Verirse Güvene Erişince Vakitli 1 Emir Olan Namazı Kılmaya Devam Etmemiz Emrediliyor.
 
@@ -190,7 +182,7 @@ Ant olsun ki, Musa ve Harun'a takva sahipleri için bir ışık olan, bir öğü
 
 ### 4:105 Biz, insanlar arasında, ALLAH'ın sana gösterdiği gibi hükmedesin diye, Kitap'ı hakikat olarak indirdik. Hainlerin savunucusu olma.
 
-### [Oku.FurkanHikmet.com/8](https://Oku.FurkanHikmet.com/8)
+### [FurkanHikmet.com/8](https://FurkanHikmet.com/8)
 
 ### 🔥 “ORTAK KOŞAN HERKES CEHENNEME GİRECEK!”
 
