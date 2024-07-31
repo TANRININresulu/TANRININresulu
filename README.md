@@ -1,4 +1,4 @@
-Subhan EFENDİMİZ EL KUDDÜS, bu türden şapkaların -lenin şapkası- nın giyilmesini haram etti
+SUBHAN RABBİMİZ EL KUDDÜS, bu türden şapkaların -lenin şapkası- nın giyilmesini haram etti
 
 
 <br>![üçlemeyi uyduran sonraki yaşamında da 9:128-129 ’u uyduran daha sonra da ateizmi ve dinsizliği insanlara dayatan şeytan ajanı ikiyüzlü hain müşrik inkarcı zalim zorba işkariyot huzeyme lenin in giydiği bu solcu inkarcı ateist müşrik lenin inkarcı şapkasının giyilmesini haram etti Subhan Rabbimiz ALLAH!](https://raw.githubusercontent.com/TANRIninResulu/TANRIninResulu/main/haram_giymesi_lenin_şapkasının.jpg)
@@ -153,7 +153,7 @@ Ant olsun ki, Musa ve Harun'a takva sahipleri için bir ışık olan, bir öğü
  
 20:28 "Ki sözümü anlasınlar."
 
-### 📖 [MasjidTucson.org](https://MasjidTucson.org) & [19x334.com](https://19x334.com) & [TrueClock.org](http://TrueClock.org) & [FurkanHikmet.com/9#12](https://FurkanHikmet.com/9#12) & [19.org](https://19.org) & [UniversalUnity.org](https://web.archive.org/web/20191226045307/http://www.universalunity.org/) & [Hanif.de](https://web.archive.org/web/20191230123852/http://hanif.de/) & [66619.org](https://web.archive.org/web/20120218154741/http://www.66619.org/) & [FurkanHikmet.com](https://FurkanHikmet.com/) & [Kıyamet.net](https://Kıyamet.net/)
+### 📖 [KıYAMETSAATi.com](https://KıYAMETSAATi.com) & [19x334.com](https://19x334.com) & [TRUECLOCK.org](http://TRUECLOCK.org) & [FURKANhikmet.com/9#12](https://FURKANhikmet.com/9#12) & [KıYAMET.NET](https://KıYAMET.NET)
 
 ### 🕋 🛐 ‪Her Vakit Namaz = 1 Kıyam 1 Rüku ve 1 Secde’dir!
 
@@ -174,7 +174,7 @@ Ant olsun ki, Musa ve Harun'a takva sahipleri için bir ışık olan, bir öğü
 
 ### Yani baskın olmazsa ordu namazı kısaltmıyor! Ancak Eğer Baskın Olursa, Namazı Olduğu Gibi Bırakıp Düşman kafirlerle TopYekün Savaşılıyor Ve Bu Durumda 4:101 ayetinde belirtildiği gibi mecburen Kısaltılmış Olunuyor Namaz! Ve 4:101 ayetinde bu kısaltmadan ötürü inananlara bir günah olmadığını bildiriyor Rabbimiz Rahman! Ve 4:103 ayetinde namazı kıldıktan sonra ayakta otururken ve yanlarımız üzerinde iken ALLAH’ı anmaya devam etmemiz emrediliyor!
 
-###   سبحن الله ربي القدوس
+###   سبحن ربي القدوس
 
 ### Ve ALLAH İzin Verirse Güvene Erişince Vakitli 1 Emir Olan Namazı Kılmaya Devam Etmemiz Emrediliyor.
 
@@ -199,7 +199,7 @@ Ant olsun ki, Musa ve Harun'a takva sahipleri için bir ışık olan, bir öğü
 ### ⛈ Tufan Yolda Şeytanın Krallığını Yıkmak İçin
 
 <!--
-**aWordFromGOD/aWordFromGOD** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**This** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
 
