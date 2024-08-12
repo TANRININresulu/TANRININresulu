@@ -81,7 +81,7 @@ AbdURRAHMAN Ayyıldız عبدالرحمن القمرالنجم
 
 20:14 "Şüphesiz BEN, BENİM: ALLAH. BEN'den başka ilah yoktur. BANA kulluk et ve BENİ anmak için namazı gözet." 
 
-
+![NECM SURESİ'NDE ANLATILAN İLK OLAYIN GERÇEKLEŞTİĞİ: RABBİM EL KUDDUS 'Ü GÖRDÜĞÜM YER!](IMG_3841.jpeg)
 
 ![27-12-2014](https://github.com/TANRIninResulu/TANRIninResulu/assets/8404792/6d25faff-e6b7-4773-b1d8-6920b92722d5)
 
