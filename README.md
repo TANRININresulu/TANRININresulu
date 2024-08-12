@@ -50,13 +50,10 @@ Sure 112 - İHLAS
 
 ### 🙋🏼‍♂️ Selam 👋
 
-Ben, Hud Salih Eyyub İshak Yusuf Musa Süleyman Zü'l Kifl Meryemoğlu İsa Mesih Reşad Halife AbdURRAHMAN Ayyıldız
+Ben, Hud Salih Eyyub İshak Yusuf Musa Süleyman Zü'l Kifl Reşad Halife AbdURRAHMAN Ayyıldız
 عبدالرحمن القمرالنجم
 
-19:19
-"Ben sadece Rabb'inin elçisiyim." dedi. "Sana tertemiz bir oğul armağan etmek için geldim."
-
-![19 yaşındayken 19-10-2010](https://github.com/TANRIninResulu/TANRIninResulu/assets/8404792/caf2ec82-086a-4412-9e48-ea09ff95aa06)
+![19 yaşındayken 19-10-2010](https://github.com/TANRININresulu/TANRININresulu/assets/8404792/caf2ec82-086a-4412-9e48-ea09ff95aa06)
 
 20:09 Musa'nın haberi sana ulaştı mı? 
  
@@ -109,7 +106,7 @@ Ant olsun ki Musa'ya Kitap'ı verdik. Ardı sıra resuller gönderdik. Meryem o�
  
 72:27 Ancak elçisinden razı olduğu kimseye; artık şüphesiz O, onun önünden ve ardından gözcü yürütür. 
 
-![rashad and jesus](https://github.com/TANRIninResulu/TANRIninResulu/assets/8404792/6c112ed2-aeb0-4be3-990c-c725259c6bbf)
+![rashad and jesus](https://github.com/TANRININresulu/TANRININresulu/assets/8404792/6c112ed2-aeb0-4be3-990c-c725259c6bbf)
 
 72:28 RAB'lerinin risaletini duyuruyor olduklarını bilsin diye. O, onlarda bulunanı kuşatmış ve her şeyi sayıyla hesaplamıştır.
 
@@ -137,7 +134,7 @@ Ant olsun ki, Musa ve Harun'a takva sahipleri için bir ışık olan, bir öğü
  
 20:21 Dedi, "Al onu, korkma. Onu ilk durumuna sokacağız." 
 
-[![ALLAH 'IN YARDIMI VE ZAFER GELDİĞİ ZAMAN !](https://github.com/TANRIninResulu/TANRIninResulu/assets/8404792/723a178b-2484-44b4-a840-a086bf2636a5)](https://youtu.be/0c9Z5YAGZn4)
+[![ALLAH 'IN YARDIMI VE ZAFER GELDİĞİ ZAMAN !](https://github.com/TANRININresulu/TANRININresulu/assets/8404792/723a178b-2484-44b4-a840-a086bf2636a5)](https://youtu.be/0c9Z5YAGZn4)
 
 20:22 "Bir başka delil olarak, elini koltuğunun altına koy; lekesiz bembeyaz olarak çıksın." 
  
@@ -155,7 +152,7 @@ Ant olsun ki, Musa ve Harun'a takva sahipleri için bir ışık olan, bir öğü
 
 ### 📖 [KıYAMETSAATi.com](https://KıYAMETSAATi.com) & [19x334.com](https://19x334.com) & [TRUECLOCK.org](http://TRUECLOCK.org) & [FURKANhikmet.com/9#12](https://FURKANhikmet.com/9#12) & [KıYAMET.NET](https://KıYAMET.NET)
 
-### 🕋 🛐 ‪Her Vakit Namaz = 1 Kıyam 1 Rüku ve 1 Secde’dir!
+### 🕋 🛐 ‪Her Vakit Namaz = 1 Kıyam, 1 Rüku ve 1 Secde’den Oluşur!
 
 ### 🕋 🛐 [FurkanHikmet.com/8#10](https://FurkanHikmet.com/8#10) - İbrahim, Rabbi için ayakta durdu, rüku ve secde etti sonra da O’na şöyle dua etti “Ey Rabbim! Beni ve soyumdan gelecekleri namazı devamlı kılanlardan eyle; ey Rabbimiz! Duamı kabul eyle.” 
 ### & Kuran 4:102
