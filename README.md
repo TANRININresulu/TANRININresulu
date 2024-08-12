@@ -18,21 +18,28 @@ SUBHAN RABBİMİZ EL KUDDÜS, bu türden şapkaların -lenin şapkası- nın giy
 111:5 Boynunda ip dikenden!](https://raw.githubusercontent.com/TANRIninResulu/TANRIninResulu/main/lenin_şapkasını_giymeyi_haram_etti_Subhan_ALLAH!_LA_İLAHE_İLLA_ALLAH!.jpg)
 
 
+FURKAN 3:18- Yoksa ALLAH'tan başka TANRI'mı var? Öyle olsaydı yerin ve göğün düzeni bozulur, her biri diğerine üstün gelmek için bir yol arardı.
+
+KURAN 3:18- ALLAH, KENDİSİNDEN başka ilah OLMADIĞINA ŞAHİTLİK EDER! ; melekler ve adaleti gözeten ilim sahipleri de! ; O'NDAN BAŞKA İLAH YOKTUR! AZİZ OLAN HAKİM'DİR!
+
+
 Sure 109 - KÜFREDENLER
- 
-RAHMAN ve RAHİM Olan ALLAH'ın Adıyla, 
- 
-109:1 De : " EY SİZ KAFİRLER ! " 
- 
-109:2 " ETMEM ! KULLUK ! , şeye kulluk ettiğiniz ! " 
- 
-109:3 " VE ETMEZSİNİZ ! SİZ ! KULLUK ! , ŞEYE KULLUK ETTİĞİM ! ” 
- 
-109:4 " VE DEĞİLİM ! BEN ! EDEN ! KULLUK ! , şeye kulluk ettiğiniz ! ” 
- 
-109:5 " VE DEĞİLSİNİZ ! SİZ ! EDEN ! KULLUK ! , ŞEYE KULLUK ETTİĞİM ! ” 
- 
-109:6 " KESİNLİKLE SİZİNDİR ! dininiz ! , VE KESİNLİK (19) BENİM DİNİM ! ”
+
+109:0- RAHMAN VE RAHİM OLAN ALLAH'IN ADIYLA;
+
+109:1- DE Kİ : " EY siz küfredenler ! "
+
+109:2- " ETMEM ! KULLUK ( [YouTu.be/8chTioOJb3E](YouTu.be/8chTioOJb3E) ) ! , şeye kulluk ettiğiniz ! "
+
+109:3- " VE etMEZsiniz ! siz ! kulluk ! , KULLUK ETTİĞİME ! ”
+
+109:4- " VE DEĞİLİM ! BEN ! EDEN ! KULLUK ! , şeye kulluk ettiğiniz ! ”
+
+109:5- " VE DEĞİLsiniz ! siz ! EDEN ! KULLUK ! , KULLUK ETTİĞİME ! ”
+
+109:6- " KESİNLİKLE! sizindir ! dininiz ! , VE KESİNLİK ([19](19x334.com) [KıYAMETSAATi.COM](KıYAMETSAATi.COM)) BENİM DİNİM ! ”
+
+[FURKANhikmet.com/9#12](FURKANhikmet.com/9#12)
 
 
 <br>4:26 ALLAH, size açıklamak; sizi, sizden öncekilerin yasalarına iletmek ve tevbenizi kabul etmek ister. ALLAH, Her Şeyi Bilen'dir, En İyi Hüküm Veren'dir.
@@ -55,8 +62,7 @@ Sure 112 - İHLAS
 
 Ben, Hud Salih Eyyub İshak Yusuf Musa Süleyman Zü'l Kifl Meryemoğlu İsa Mesih Reşad Halife
 
-AbdURRAHMAN Ayyıldız
-عبدالرحمن القمرالنجم
+AbdURRAHMAN Ayyıldız عبدالرحمن القمرالنجم
 
 19:19
 "Ben sadece Rabb'inin elçisiyim." dedi. "Sana tertemiz bir oğul armağan etmek için geldim."
@@ -74,6 +80,8 @@ AbdURRAHMAN Ayyıldız
 20:13 "Ben seni seçtim, öyleyse vahyolanı dinle." 
 
 20:14 "Şüphesiz BEN, BENİM: ALLAH. BEN'den başka ilah yoktur. BANA kulluk et ve BENİ anmak için namazı gözet." 
+
+
 
 ![27-12-2014](https://github.com/TANRIninResulu/TANRIninResulu/assets/8404792/6d25faff-e6b7-4773-b1d8-6920b92722d5)
 
