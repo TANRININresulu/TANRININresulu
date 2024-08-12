@@ -62,8 +62,6 @@ AbdURRAHMAN Ayyıldız
 19:19
 "Ben sadece Rabb'inin elçisiyim." dedi. "Sana tertemiz bir oğul armağan etmek için geldim."
 
-عبدالرحمن القمرالنجم
-
 ![19 yaşındayken 19-10-2010](https://github.com/TANRININresulu/TANRININresulu/assets/8404792/caf2ec82-086a-4412-9e48-ea09ff95aa06)
 
 20:09 Musa'nın haberi sana ulaştı mı? 
