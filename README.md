@@ -1,3 +1,5 @@
+![EVERY PARTNER ASSOCIATEEN WILL ENTER TO HELL!](IMG_6770.jpeg)
+
 SUBHAN RABBİMİZ EL KUDDÜS, bu türden şapkaların -lenin şapkası- nın giyilmesini haram etti
 
 
