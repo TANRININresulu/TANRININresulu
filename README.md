@@ -2,12 +2,12 @@
 <br><br>
 ![EVERY PARTNER ASSOCIATEEN WILL ENTER TO HELL!](IMG_6770.jpeg)
 
-SUBHAN RABBİMİZ EL KUDDÜS, bu türden şapkaların -lenin şapkası- nın giyilmesini haram etti:
+RABBİMİZ EL KUDDUS, bu türden şapkaların -lenin şapkası- nın giyilmesini haram etti:
 
-<br>![üçlemeyi uyduran sonraki yaşamında da 9:128-129 ’u uyduran daha sonra da ateizmi ve dinsizliği insanlara dayatan şeytan ajanı ikiyüzlü hain müşrik inkarcı zalim zorba işkariyot huzeyme lenin in giydiği bu solcu inkarcı ateist müşrik lenin inkarcı şapkasının giyilmesini haram etti Subhan Rabbimiz ALLAH!](https://raw.githubusercontent.com/TANRIninResulu/TANRIninResulu/main/haram_giymesi_lenin_şapkasının.jpg)
+<br>![üçlemeyi uyduran sonraki yaşamında da 9:128-129 ’u uyduran daha sonra da ateizmi ve dinsizliği insanlara dayatan şeytan ajanı ikiyüzlü hain müşrik inkarcı zalim zorba işkariyot huzeyme lenin in giydiği bu solcu inkarcı ateist müşrik lenin inkarcı şapkasının giyilmesini haram etti Rabbimiz EL KUDDUS!](https://raw.githubusercontent.com/TANRIninResulu/TANRIninResulu/main/haram_giymesi_lenin_şapkasının.jpg)
 
 
-<br>üçlemeyi uyduran sonraki yaşamında da 9:128-129 ’u uyduran daha sonra da ateizmi ve dinsizliği insanlara dayatan şeytan ajanı ikiyüzlü hain müşrik inkarcı zalim zorba işkariyot huzeyme lenin in giydiği bu solcu inkarcı ateist müşrik lenin inkarcı şapkasının giyilmesini haram etti Subhan Rabbimiz ALLAH!
+<br>üçlemeyi uyduran sonraki yaşamında da 9:128-129 ’u uyduran daha sonra da ateizmi ve dinsizliği insanlara dayatan şeytan ajanı ikiyüzlü hain müşrik inkarcı zalim zorba işkariyot huzeyme lenin in giydiği bu solcu inkarcı ateist müşrik lenin inkarcı şapkasının giyilmesini haram etti Rabbimiz EL KUDDUS!
 
 <br>![111 - Diken
 111:0 RAHMAN ve Rahim olan ALLAH'ın Adıyla, 
