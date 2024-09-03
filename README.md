@@ -62,10 +62,6 @@ Sure 112 - İHLAS
 
 ### 🙋🏼‍♂️ Selam 👋
 
-Ben, Hud Salih Eyyub İshak Yusuf Musa Süleyman Zü'l Kifl Meryemoğlu İsa Mesih Reşad Halife
-
-AbdURRAHMAN Ayyıldız عبدالرحمن القمرالنجم
-
 19:19
 "Ben sadece Rabb'inin elçisiyim." dedi. "Sana tertemiz bir oğul armağan etmek için geldim."
 
@@ -83,10 +79,6 @@ AbdURRAHMAN Ayyıldız عبدالرحمن القمرالنجم
 
 20:14 "Şüphesiz BEN, BENİM: ALLAH. BEN'den başka ilah yoktur. BANA kulluk et ve BENİ anmak için namazı gözet." 
 
-![NECM SURESİ'NDE ANLATILAN İLK OLAYIN GERÇEKLEŞTİĞİ: RABBİM EL KUDDUS 'Ü GÖRDÜĞÜM YER!](IMG_3843.jpeg)
-
-![27-12-2014](https://github.com/TANRIninResulu/TANRIninResulu/assets/8404792/6d25faff-e6b7-4773-b1d8-6920b92722d5)
-
 20:15 O saat elbette gelecektir. Herkes yaptığının karşılığını görsün diye Ben nerdeyse onu gizleyeceğim. 
  
 20:16 Ona inanmayıp hevesine uyanlar seni ondan saptırmasın, sonra başüstü düşersin.
@@ -97,8 +89,7 @@ AbdURRAHMAN Ayyıldız عبدالرحمن القمرالنجم
 
 ve 15 Temmuz ‘dan önce beni tımarhaneye koydular … ve hak ettikleri 15 Temmuz’u hakettiler : [FurkanHikmet.com/14](https://FurkanHikmet.com/14)
 
-![Apple iPhone X kare](https://github.com/TANRIninResulu/TANRIninResulu/assets/8404792/e7bca606-594c-4828-8e06-1ce662d77246)
-
+![s](https://github.com/user-attachments/assets/964ebcef-04a5-474c-b8dc-f6bbd87b83df)
 
 2:87 
 Ant olsun ki Musa'ya Kitap'ı verdik. Ardı sıra resuller gönderdik. Meryem oğlu İsa'ya da Beyyinat'ı verdik ve O'nu Kudus'un Ruhu ile destekledik. Ne zaman bir elçi hoşunuza gitmeyen bir şey getirdiyse, büyüklük taslayarak kimini yalanlayıp, kimini de öldürmediniz mi?
@@ -123,8 +114,6 @@ Ant olsun ki Musa'ya Kitap'ı verdik. Ardı sıra resuller gönderdik. Meryem o�
 72:26 O geleceği bilendir; ve O sırrını hiç kimseye göstermez. 
  
 72:27 Ancak elçisinden razı olduğu kimseye; artık şüphesiz O, onun önünden ve ardından gözcü yürütür. 
-
-![rashad and jesus](https://github.com/TANRININresulu/TANRININresulu/assets/8404792/6c112ed2-aeb0-4be3-990c-c725259c6bbf)
 
 72:28 RAB'lerinin risaletini duyuruyor olduklarını bilsin diye. O, onlarda bulunanı kuşatmış ve her şeyi sayıyla hesaplamıştır.
 
@@ -169,35 +158,6 @@ Ant olsun ki, Musa ve Harun'a takva sahipleri için bir ışık olan, bir öğü
 20:28 "Ki sözümü anlasınlar."
 
 ### 📖 [KıYAMETSAATi.com](https://KıYAMETSAATi.com) & [19x334.com](https://19x334.com) & [TRUECLOCK.org](http://TRUECLOCK.org) & [FURKANhikmet.com/9#12](https://FURKANhikmet.com/9#12) & [KıYAMET.NET](https://KıYAMET.NET)
-
-### 🕋 🛐 ‪Her Vakit Namaz = 1 Kıyam, 1 Rüku ve 1 Secde’den Oluşur!
-
-### 🕋 🛐 [FurkanHikmet.com/8#10](https://FurkanHikmet.com/8#10) - İbrahim, Rabbi için ayakta durdu, rüku ve secde etti sonra da O’na şöyle dua etti “Ey Rabbim! Beni ve soyumdan gelecekleri namazı devamlı kılanlardan eyle; ey Rabbimiz! Duamı kabul eyle.” 
-### & Kuran 4:102
-### Ortak Koşmayın!
-### ——————————————
-### Rabbimiz ALLAH EN YÜCEDİR !
-### ——————————————
-
-### 4:101 ayetinde kast edilen namazın kısaltmasından kasıt, 4:102 ayetinde açıklanıyor: “namaz esnasında düşman kafirlerin saldırması durumunda namazı kesip düşmanın saldırısına silahlı olarak cevap vermek!”
-
-### 4:102 ayetinde, Namaz esnasında hastalık bitkinliğinden ya da yağmur nedeniyle toprağın çamuruna batmamak için silahın ağırlığına namaz esnasında katlanamayanlara dahi silahlarını namaz esnasında bırakmalarına izin verdiğini ancak saldırıya hazır olmalarını (dolayısıyla silahlarının yanlarında yerde yakında namaz kıldıkları yerin ön kenarında vb. olması) detayını dahi bildiriyor Rabbimiz Rahman!
-
-### [Furkan 8:10](https://FurkanHikmet.com/8#10) ayetinde olduğu gibi Kuran 4:102 ayetinde de namazda her vaktin 1 kıyam 1 rüku 1 secde ‘den oluştuğu bildiriliyor. Ordu’nun namaz esnasında 2’ye bölünme nedeni namaz esnasında düşman kafirlerin baskınına cevap verebilmek! 
-
-### Ancak eğer namaz esnasında düşman kafirler saldırmazlarsa ve kafir düşmanın fitnesinden o yer ve zamanda çekinilmiyorsa namazı olması gerektiği şekilde kısaltmadan normal uzunluğunda 1 kıyam 1 rüku ve 1 secde olarak kılmış oluyor ordunun ilk yarısı. Namazı kılmayan ve namaz kılınması esnasında gözcülük yapan ordunun 2. yarısı, ilk yarısıyla yer değiştirip, ordunun 2. yarısı da namazı kılınca, Sadece Nebi 2 kere namaz kılmış oluyor. Diğer tüm askerler tam uzunlukta kısaltmadan namazlarını kılmış oluyorlar bir baskın olmaması halinde!
-
-### Yani baskın olmazsa ordu namazı kısaltmıyor! Ancak Eğer Baskın Olursa, Namazı Olduğu Gibi Bırakıp Düşman kafirlerle TopYekün Savaşılıyor Ve Bu Durumda 4:101 ayetinde belirtildiği gibi mecburen Kısaltılmış Olunuyor Namaz! Ve 4:101 ayetinde bu kısaltmadan ötürü inananlara bir günah olmadığını bildiriyor Rabbimiz Rahman! Ve 4:103 ayetinde namazı kıldıktan sonra ayakta otururken ve yanlarımız üzerinde iken ALLAH’ı anmaya devam etmemiz emrediliyor!
-
-###   سبحن ربي القدوس
-
-### Ve ALLAH İzin Verirse Güvene Erişince Vakitli 1 Emir Olan Namazı Kılmaya Devam Etmemiz Emrediliyor.
-
-### 4:104 O topluluğu izlemekte gevşeklik göstermeyin. Siz acı çekiyorsanız onlar da sizin gibi acı çekiyor. Fakat siz, onların ALLAH'tan ummadığını umuyorsunuz. ALLAH Bilendir, Bilgedir.
-
-### 4:105 Biz, insanlar arasında, ALLAH'ın sana gösterdiği gibi hükmedesin diye, Kitap'ı hakikat olarak indirdik. Hainlerin savunucusu olma.
-
-### [FurkanHikmet.com/8](https://FurkanHikmet.com/8)
 
 ### 🔥 “ORTAK KOŞAN HERKES CEHENNEME GİRECEK!”
 
