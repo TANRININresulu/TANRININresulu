@@ -65,7 +65,7 @@ Sure 112 - İHLAS
 19:19
 "Ben sadece Rabb'inin elçisiyim." dedi. "Sana tertemiz bir oğul armağan etmek için geldim."
 
-![19 yaşındayken 19-10-2010](https://github.com/TANRININresulu/TANRININresulu/assets/8404792/caf2ec82-086a-4412-9e48-ea09ff95aa06)
+![abdULKUDDUS](https://github.com/user-attachments/assets/7caf0b08-0041-41ff-8ca4-5ef8bca571d5)
 
 20:09 Musa'nın haberi sana ulaştı mı? 
  
