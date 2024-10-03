@@ -141,7 +141,7 @@ Ant olsun ki, Musa ve Harun'a takva sahipleri için bir ışık olan, bir öğü
  
 20:21 Dedi, "Al onu, korkma. Onu ilk durumuna sokacağız." 
 
-[![ALLAH 'IN YARDIMI VE ZAFER GELDİĞİ ZAMAN !](https://github.com/TANRININresulu/TANRININresulu/assets/8404792/723a178b-2484-44b4-a840-a086bf2636a5)](https://youtu.be/0c9Z5YAGZn4)
+[![ALLAH 'IN YARDIMI VE ZAFER GELDİĞİ ZAMAN !](https://github.com/TANRININresulu/TANRININresulu/assets/8404792/723a178b-2484-44b4-a840-a086bf2636a5)](https://github.com/TANRININresulu/Fusion_Battery/tree/main/videos)
 
 20:22 "Bir başka delil olarak, elini koltuğunun altına koy; lekesiz bembeyaz olarak çıksın." 
  
