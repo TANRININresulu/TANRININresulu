@@ -121,7 +121,7 @@ Ant olsun ki Musa'ya Kitap'ı verdik. Ardı sıra resuller gönderdik. Meryem o�
 
 [19x334.com](https://19x334.com)
 
-[Kıyamet.net](https://Kıyamet.net) ( [TrueClock.org](https://TrueClock.org) ) 17 Ocak 2280 - UTC 15:49:31 - 14 Cemaziyelevvel 1709
+[Kıyamet.net](https://Kıyamet.net) ( [KıyametSaati.com](https://KıyametSaati.com) ) 17 Ocak 2280 - UTC 15:49:31 - 14 Cemaziyelevvel 1709
 
 [FurkanHikmet.com](https://FurkanHikmet.com)
 
@@ -157,7 +157,7 @@ Ant olsun ki, Musa ve Harun'a takva sahipleri için bir ışık olan, bir öğü
  
 20:28 "Ki sözümü anlasınlar."
 
-### 📖 [KıYAMETSAATi.com](https://KıYAMETSAATi.com) & [19x334.com](https://19x334.com) & [TRUECLOCK.org](http://TRUECLOCK.org) & [FURKANhikmet.com/9#12](https://FURKANhikmet.com/9#12) & [KıYAMET.NET](https://KıYAMET.NET)
+### 📖 [KıYAMETSAATi.com](https://KıYAMETSAATi.com) & [19x334.com](https://19x334.com) & [FURKANhikmet.com/9#12](https://FURKANhikmet.com/9#12) & [KıYAMET.NET](https://KıYAMET.NET)
 
 ### 🔥 “ORTAK KOŞAN HERKES CEHENNEME GİRECEK!”
 
