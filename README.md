@@ -171,7 +171,7 @@ Ant olsun ki, Musa ve Harun'a takva sahipleri için bir ışık olan, bir öğü
 
 ![“EVERY PARTNER ASSOCIATEEN WILL ENTER TO HELL!”](/promisen-word-in-verse-73-5.png)
 
-### ⛈ Tufan Yolda Şeytanın Hipnozunu Yıkmak İçin
+### Diriliş 17.1.2280 Cumartesi UTC 15:49:31'den Önce ⛈ Tufan Yolda şeytanın Hipnozunu Yıkmak İçin!
 
 <!--
 **This** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
